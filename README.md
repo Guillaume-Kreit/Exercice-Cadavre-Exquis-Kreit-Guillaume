@@ -17,8 +17,12 @@ Et on recommence.
 
 *Et ensuite je rentre a ma maison.* (Remix Cartman)
 
+<<<<<<< HEAD
 #####Pour boire mon chocolat chaud.
 
 Mais pris de panique,je fais un malaise.
 
 #*JE MEURS*
+=======
+*Et je reviens ici...*
+>>>>>>> 49dc6835c2225b6a0815a96ab62a298b874d7b40
