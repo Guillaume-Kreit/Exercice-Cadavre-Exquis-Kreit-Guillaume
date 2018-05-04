@@ -16,3 +16,6 @@ Et on recommence.
 *Et je repasse par la*
 
 *Et ensuite je rentre a ma maison.* (Remix Cartman)
+
+Siflotant, sirotant une bonne pinte bien fraîche... Elle est pas belle la vie?
+Non peut-être!
