@@ -16,3 +16,9 @@ Et on recommence.
 *Et je repasse par la*
 
 *Et ensuite je rentre a ma maison.* (Remix Cartman)
+
+#####Pour boire mon chocolat chaud.
+
+Mais pris de panique,je fais un malaise.
+
+#*JE MEURS*
