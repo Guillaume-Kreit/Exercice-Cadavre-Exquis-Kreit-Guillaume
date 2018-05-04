@@ -5,3 +5,8 @@ Cadavre Exquis
 >Qui se trouve si hardi de troubler ma **pinte** ?
 
 >Maitre __corbeaux__ sur son toît au perché,finit de griler sa clope
+
+Sans étât d'âmes on **avance**
+* Une foix
+* deux fois
+Et on recommence.
